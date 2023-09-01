@@ -5,4 +5,4 @@
 - Advertising and Digital Marketing professional  
 
 
-:warning: Este github está em construção!	:warning:	
+:warning: This GitHub is under construction	:warning:	
