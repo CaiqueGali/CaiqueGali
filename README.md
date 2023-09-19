@@ -3,7 +3,7 @@
 - PM, PMO and Business Analyst
 - Advertising and Digital Marketing professional
 
-## We will either find a way, or we will build one 💡 
+> We will either find a way, or we will build one 💡 
 
 
 
