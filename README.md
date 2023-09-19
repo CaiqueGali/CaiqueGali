@@ -2,7 +2,7 @@
 
 - Graduated PM, PMO and Business Analyst :chart_with_upwards_trend: :paperclip:
 - Also graduated in Advertising and Digital Marketing professional
-- Game Producer Student (Project Management)
+- Game Producer Student (Project Management) :video_game: :space_invader:
 
 > We will either find a way, or we will build one 💡 
 
