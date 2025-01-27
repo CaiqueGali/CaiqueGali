@@ -10,7 +10,7 @@ I'm Caique, a professional with a strong background in:
 - Data Science & Analytics 📈
 - Advertising & Marketing 💼
 
-You can find a few reports of the industry bellow :)
+You can find a few reports and projects bellow :)
 
 💡 "We will either find a way, or we will build one."
 
